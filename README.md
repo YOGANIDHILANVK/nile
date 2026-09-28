@@ -1,2 +1,2 @@
 # nile
-river filled with natures beauty
+river filled with nature's beauty
